@@ -1,1 +1,0 @@
-# 10Academy-AIM-Week1
